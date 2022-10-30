@@ -9,5 +9,5 @@ A passionate software Engineer from India  .
 - 💬 Ask me : about for flutter or any  tech related stuff.
 - 📫 How to reach me : shrivastavanimesh51@gmail.com , nimesh._15 
 - 😄 Pronouns: He/His.
-- ⚡ Fun fact: I spend almost 5 hours listening everyday.
+- ⚡ Fun fact: I spend almost 5 hours listening music everyday.
 
